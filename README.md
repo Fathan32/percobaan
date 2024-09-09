@@ -1,0 +1,2 @@
+# percobaan
+cara menjadi kaya
